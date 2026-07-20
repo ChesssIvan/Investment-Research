@@ -42,4 +42,4 @@
 
 ## Контакты
 
-Telegram:
+Telegram: https://t.me/tradeivanmsk
