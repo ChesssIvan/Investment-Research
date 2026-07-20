@@ -43,3 +43,6 @@
 ## Контакты
 
 Telegram: https://t.me/tradeivanmsk
+Instagram: https://www.instagram.com/trade_ivanmsk?igsh=MWFjMzdqdDJzaXc4bQ%3D%3D&utm_source=qr
+TikTok: https://www.tiktok.com/@tradeivanmsk?_r=1&_t=ZS-98BmuY225PY
+YouTube: https://www.youtube.com/@tradeivanmsk
